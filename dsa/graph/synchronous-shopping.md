@@ -1,0 +1,1 @@
+https://www.hackerrank.com/challenges/synchronous-shopping/copy-from/402987166
